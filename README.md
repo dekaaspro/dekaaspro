@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dekaaspro
-- 👀 I’m interested in ... childslavery
+- 👀 I’m interested in ... garfield
 - 🌱 I’m currently learning ... breathing
 - 💞️ I’m looking to collaborate on ... secret government programs
 - 📫 How to reach me ... by postduif
